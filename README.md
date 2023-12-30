@@ -13,3 +13,4 @@ My name is Le Hoang Minh Chau. You can call me Chau Le. I am in the process of b
 
 ### Let's Connect
 - 📫 Feel free to connect with me via [Linkedin](https://www.linkedin.com/in/chau-le-2610/)
+- Email: chaule2610@gmail.com
